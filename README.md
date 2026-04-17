@@ -1,2 +1,6 @@
 # app-dev.
-My first repository
+stranger things 
+2gether
+pee mak
+sadness
+
